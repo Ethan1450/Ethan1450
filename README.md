@@ -1,6 +1,6 @@
 ### Who am I... (under construction)
 
-B.A. at NTU PS & Econ
+B.A. at NTU PS & Econ  
 Current NTU Econ M.A.
 
 Still trying to figure out what I will study in the future.
