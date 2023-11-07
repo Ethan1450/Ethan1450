@@ -1,4 +1,12 @@
-### Hi there 👋
+### Who am I... (under construction)
+
+B.A. at NTU PS & Econ
+Current NTU Econ M.A.
+
+Still trying to figure out what I will study in the future.
+
+
+
 
 <!--
 **Ethan1450/Ethan1450** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
